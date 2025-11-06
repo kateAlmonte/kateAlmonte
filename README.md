@@ -9,3 +9,6 @@ Hi! I am Kate Cassandra G. Almonte, and I'm currently studying Information Techn
 
 
 ✨ 🙏 Manifesting to graduate. AMDG! 🎓💫
+
+## FUN FACT
+- 🦆 Fun fact: I share my home with a cute little duck who’s basically part of the family.
