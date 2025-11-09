@@ -5,10 +5,10 @@ Hi! I am Kate Cassandra G. Almonte, and I'm currently studying Information Techn
 - 🔭 I’m currently working on our Final project
 - 📫 How to reach me: You can email me at 20210022962@my.xu.edu.ph
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I love toron, and I enjoy playing darts and play volleyball
+- ⚡ Fun fact: I love toron, and I enjoy playing darts and volleyball
 
 
 ✨ 🙏 Manifesting to graduate. AMDG! 🎓💫
 
 ## FUN FACT
-- 🦆 Fun fact: I share my home with a cute little duck who’s basically part of the family :D
+- 🦆 Fun fact: I share my home with a cute little duck who’s already part of the family :D
